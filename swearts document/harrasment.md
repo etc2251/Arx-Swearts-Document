@@ -4,6 +4,7 @@
 ![Screenshot 2025-06-01 073939](https://github.com/user-attachments/assets/b37c9d87-36fb-4151-af90-15f53fa07eb3)
 # THEN, HE HOPPED ON ANOTHER ACCOUNT TOO 😭
 https://github.com/user-attachments/assets/2b7b3171-51bb-40c4-acc7-d6f7c5c93df7
-
+# THEN, AFTER THAT HE HOPPED ON ANOTHER ACC BRO ☠️
+https://youtu.be/BVKCu2W7O0U
 # Youtube video:
 https://www.youtube.com/watch?v=ZSqhn3SjjaQ
