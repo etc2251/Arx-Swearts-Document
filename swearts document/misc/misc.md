@@ -12,3 +12,12 @@
 ![image](https://github.com/user-attachments/assets/04a0feff-e194-46b0-ac68-0bb73a0122b2)
 ![image](https://github.com/user-attachments/assets/752c7041-4706-44f3-b546-7099b0ec22f4)
 ![image](https://github.com/user-attachments/assets/e021fe96-5d9c-4da8-a9b2-c4a63a68af2c)
+
+
+# SWEARTS IS A LYING PIECE OF SHIT: HERE'S HIS PHOTO:
+![image](https://github.com/user-attachments/assets/d4b1caf0-b327-479e-b076-0b465688b422)
+# Now here's my image:
+![Screenshot 2025-06-01 085536](https://github.com/user-attachments/assets/6738c9b4-dc8b-407e-9579-31e2b128b9b0)
+AND HIM CROSSING OUT THE EDITED MARK:
+![Screenshot 2025-06-01 085456](https://github.com/user-attachments/assets/dcbf883f-a364-4cfe-a824-199b5fd76051)
+:skull:
