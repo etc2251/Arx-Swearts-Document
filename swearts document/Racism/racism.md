@@ -8,6 +8,8 @@
 
 # Swearts telling his server to raid my server:
 ![Screenshot 2025-05-30 081536](https://github.com/user-attachments/assets/ca0eb5f0-b1b3-4cc9-9706-7691f07d30fd)
+![image](https://github.com/user-attachments/assets/3ea2d12d-ecf2-4168-b497-fcf0a868cabf)
+
 
 
 # Wow
