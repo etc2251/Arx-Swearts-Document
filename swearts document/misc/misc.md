@@ -21,3 +21,14 @@
 AND HIM CROSSING OUT THE EDITED MARK:
 ![Screenshot 2025-06-01 085456](https://github.com/user-attachments/assets/dcbf883f-a364-4cfe-a824-199b5fd76051)
 :skull:
+
+
+# Swearts crying:
+![Screenshot 2025-06-01 102710](https://github.com/user-attachments/assets/28b7ef8a-c394-48f8-80c8-da1c314147bb)
+![Screenshot 2025-06-01 103009](https://github.com/user-attachments/assets/c0942195-7976-4536-9290-dbcdf4760f57)
+![Screenshot 2025-06-01 103055](https://github.com/user-attachments/assets/f8473986-84b0-4dc4-8bf0-30e96e040253)
+![Screenshot 2025-06-01 103127](https://github.com/user-attachments/assets/67d79776-6302-44a2-87c2-157a145570ce)
+![Screenshot 2025-06-01 103515](https://github.com/user-attachments/assets/732198b5-c986-4132-b5a5-c71ae9cc45b3)
+![Screenshot 2025-06-01 103515](https://github.com/user-attachments/assets/6a098058-15d1-4449-aeb5-1ff3264c4546)
+![Screenshot 2025-06-01 103751](https://github.com/user-attachments/assets/d8eee3d8-71ec-4412-9174-f05e60fc21f1)
+![Screenshot 2025-06-01 103926](https://github.com/user-attachments/assets/106e58ca-a194-4074-8edf-19bb0c31e9a2)
