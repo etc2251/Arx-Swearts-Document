@@ -7,3 +7,5 @@ This is the **Full** Document on **Swearts** Aka **Envy** (this is also going to
 # YOUTUBE VIDEO UP NOW! https://www.youtube.com/watch?v=ZSqhn3SjjaQ
 # UPDATE #2:
 Harrasment.md also up now!!
+
+# ANYONE IS FREE TO FORK, MODIFY, OR USE THIS DOCUMENT FOR THERE OWN RESEARCH PURPOSES! OR TO USE AGAINST SWEARTS.
