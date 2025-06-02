@@ -6,3 +6,5 @@ Ploosh Launcher + Modded (NOT BY HIM) Reboot (frostgs) + Reload backend = Sweart
 AND LMAO: 
 ![Screenshot 2025-06-02 082758](https://github.com/user-attachments/assets/ffcde032-89a6-4cd6-9569-b24ca7cf842e)
 ^^ Him trying to bribe me 💔
+Good idea Meowsculles! I will be doing this too ☠️
+![image](https://github.com/user-attachments/assets/f4d5a69c-2c18-43c0-890b-c905b66824ae)
