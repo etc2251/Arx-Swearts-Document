@@ -17,3 +17,5 @@
 ![Screenshot 2025-06-01 071632](https://github.com/user-attachments/assets/a1e9e6c6-57c2-4668-8d24-e0465c35f092)
 # For a content creator for exit, not very good?
 ![Screenshot 2025-05-29 091413](https://github.com/user-attachments/assets/a29c22c9-8d19-4e81-b9b0-080411c0888f)
+# Lying that he didnt mute meowscles but he did
+![Capture](https://github.com/user-attachments/assets/762bc0d8-10e9-454a-9446-c660e8fb4845)
