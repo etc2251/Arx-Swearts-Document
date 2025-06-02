@@ -32,3 +32,9 @@ AND HIM CROSSING OUT THE EDITED MARK:
 ![Screenshot 2025-06-01 103515](https://github.com/user-attachments/assets/6a098058-15d1-4449-aeb5-1ff3264c4546)
 ![Screenshot 2025-06-01 103751](https://github.com/user-attachments/assets/d8eee3d8-71ec-4412-9174-f05e60fc21f1)
 ![Screenshot 2025-06-01 103926](https://github.com/user-attachments/assets/106e58ca-a194-4074-8edf-19bb0c31e9a2)
+
+# Swearts coming back after LIKE 1 DAY ☠️ (he changed his name to leaving and anounced it in his server, then came back the next day 💀)
+![Screenshot 2025-06-02 030933](https://github.com/user-attachments/assets/04cbeb0b-82b3-4ac1-98c9-c23ec29a2554)
+![Screenshot 2025-06-02 031934](https://github.com/user-attachments/assets/65b285df-7324-40b9-a660-0f4485babcdb)
+![Screenshot 2025-06-02 020019](https://github.com/user-attachments/assets/5e1c53bf-aca1-4d4b-baf3-d2a7f0dae0cf)
+# ^ That's one of swearts close friends btw. 
