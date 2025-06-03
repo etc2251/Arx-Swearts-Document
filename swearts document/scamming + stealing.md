@@ -1,5 +1,5 @@
 # Credits to https://github.com/ZyxxTheDev/Exit?tab=readme-ov-file check him out!
-
+### also Asher wanted credits too <3
 # Exit-Exposal
 ## This is a document about Swearts/Envy. He is a big skid and one of the mosted hated ppl in ogfn community
 ## Thank you Zyxx, Super Sigma, Kovryn, and Razer for helping contribute to this...
