@@ -10,3 +10,7 @@
 ## (those are photos of swearts on his alt rio account ^^)
 # Then, he got mad and just changed his alts name back to swearts 
 ![Screenshot 2025-06-03 163317](https://github.com/user-attachments/assets/a6f0874b-630c-40e6-b123-d6e83674b333)
+And finally rio gave bro a shoutout in the real exit 😭🙏
+![image](https://github.com/user-attachments/assets/0c2768e9-8b1c-4310-9ab2-655e68e1c526)
+![image](https://github.com/user-attachments/assets/cc4201b4-7795-45ff-becc-a26ff2196347)
+![image](https://github.com/user-attachments/assets/344d800b-a2a3-4867-bedb-d2dc277d7732)
