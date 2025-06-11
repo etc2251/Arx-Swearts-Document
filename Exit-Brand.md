@@ -1,4 +1,4 @@
-# Okay, lets clear things up. For one, I talked to the owner of the exit brand aka the one who gave it to swearts originally and we are working on revoking his brand! Next, lets go over the fact I now own exit!
+# Okay, lets clear things up. For one, I talked to the person who "gave swearts the exit brand"
 Heres the photo of swearts being a liar about owning exit:
 ![image](https://github.com/user-attachments/assets/e915aa08-5b65-4322-8c04-31f633e158bc)
 ![image](https://github.com/user-attachments/assets/cd3b9c0a-1860-4588-9494-0eb399a7291a)
