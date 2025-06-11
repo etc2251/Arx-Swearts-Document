@@ -1,5 +1,7 @@
 # Swearts sending little kids in my dm's calling me a n-word skid.
 ![Screenshot 2025-05-30 114352](https://github.com/user-attachments/assets/e686652a-4f94-4d8e-b1ce-b11d984ec494)
+# Some more rasicm:
+![image](https://github.com/user-attachments/assets/5d6c36df-3b8d-4c9d-8be7-0ddcbfcc2091)
 
 ![Screenshot 2025-05-30 114032](https://github.com/user-attachments/assets/05b7ae51-f483-454c-a3c0-1a079dba3e9e)
 ![image](https://github.com/user-attachments/assets/dfa61530-c4d9-4a40-81c3-f643dc025da8)
