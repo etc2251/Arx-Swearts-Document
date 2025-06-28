@@ -1,3 +1,8 @@
+# I was going through the "elix" launcher source code and found this: 
+![Screenshot 2025-06-28 182127](https://github.com/user-attachments/assets/f123239c-e878-42a0-a88f-7dc13976e2a8)
+
+
+
 # Swearts sending little kids in my dm's calling me a n-word skid.
 ![Screenshot 2025-05-30 114352](https://github.com/user-attachments/assets/e686652a-4f94-4d8e-b1ce-b11d984ec494)
 # Some more rasicm:
