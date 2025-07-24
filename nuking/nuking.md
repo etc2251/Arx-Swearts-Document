@@ -8,5 +8,6 @@
 # Envy nuking be like:
 ![image](https://github.com/user-attachments/assets/692853e5-e437-4465-ac16-658b57eb578f)
 
+# I didn't end up nuking that server but I did need more proof and it seems he hasnt changed in the slightest.
 <img width="731" height="494" alt="Screenshot 2025-07-23 083247" src="https://github.com/user-attachments/assets/6d76bf66-fb82-4bd5-84d2-4832975616bf" />
 <img width="648" height="394" alt="Screenshot 2025-07-23 072840" src="https://github.com/user-attachments/assets/f8754b8a-e4db-4c43-b13d-608ca22b7836" />
