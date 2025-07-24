@@ -227,3 +227,55 @@ AND HIM CROSSING OUT THE EDITED MARK:
 <img width="731" height="494" alt="Screenshot 2025-07-23 083247" src="https://github.com/user-attachments/assets/6d76bf66-fb82-4bd5-84d2-4832975616bf" />
 <img width="648" height="394" alt="Screenshot 2025-07-23 072840" src="https://github.com/user-attachments/assets/f8754b8a-e4db-4c43-b13d-608ca22b7836" />
 
+
+Swearts full name - Freddie Carter
+Swearts IP Address - 86.25.153.166
+Swearts face ^^ above
+Swearts living country - United Kingdom
+Some other stuff below:
+Internet Service Provider:
+Virgin Media
+Hostname:
+virginm.net
+Country:
+United Kingdom
+Region/state:
+Norfolk
+City:
+Norwich
+Postal code:
+\NR3
+
+Norwich
+Postal code:
+\NR3
+
+
+# Promoting in a abandoned OGFN server.
+![Capture](https://github.com/user-attachments/assets/342eaa03-13df-401b-a203-003f22c4a677)
+
+
+### ![image](https://github.com/user-attachments/assets/0eaec30a-30d8-48f0-b6e1-22e3f8632895)
+### ![image](https://github.com/user-attachments/assets/6c60ebf6-ed41-40cd-8b91-b9b3faf15f27)
+### ![Screenshot 2025-06-02 082823](https://github.com/user-attachments/assets/705d7ecd-8297-4000-a5c0-7e699e307006)
+### ![Screenshot 2025-06-02 082758](https://github.com/user-attachments/assets/d1d2f68b-ee47-4533-a541-be453bb0bc7b)
+### Ploosh Launcher + Modded (NOT BY HIM) Reboot (frostgs) + Reload backend = Swearts/envy
+### AND LMAO: 
+![Screenshot 2025-06-02 082758](https://github.com/user-attachments/assets/ffcde032-89a6-4cd6-9569-b24ca7cf842e)
+### ^^ Him trying to bribe me 💔
+# Good idea Meowsculles! I will be doing this too ☠️
+![image](https://github.com/user-attachments/assets/f4d5a69c-2c18-43c0-890b-c905b66824ae)
+
+
+# It's finally here, swearts aka envy is 11 years old and will be reported to discord ☠️
+![Screenshot 2025-06-02 081344](https://github.com/user-attachments/assets/372f9e78-427b-4d4d-aa83-26de2e4c5ba8)
+^^ He would not like to remain annon btw
+![Screenshot 2025-06-02 081250](https://github.com/user-attachments/assets/2f8638b4-a6ba-4045-9339-98a4429bf075)
+
+
+# Swearts banned someone from exit for supporting our doc, this was flatout unprofessional and immature.
+![image](https://github.com/user-attachments/assets/2e147deb-6bbc-4278-9731-ef815a6d78b8)
+![image](https://github.com/user-attachments/assets/b653efec-da98-44e1-be08-751b746a5cb8)
+# THEN TELLING HIM TO PAY 50 FUCKING BONES ☠️
+![image](https://github.com/user-attachments/assets/eced9158-849a-482d-89bc-90edd7d75198)
+
