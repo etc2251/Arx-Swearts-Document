@@ -1,3 +1,14 @@
+# Recent scamming and namechange. Arx changed his name to "Fusionogfn" AND Viper to slip away from all the drama. He still thinks he can make it in "ogfn" and stuff. 
+# Arx's/viper/swearts face:
+<img width="1242" height="2208" alt="image" src="https://github.com/user-attachments/assets/df3c7331-df0e-46d8-b719-30b9af6b2216" />
+# Scamming ALREADY with his new account:
+<img width="1242" height="791" alt="image" src="https://github.com/user-attachments/assets/a0bc1e90-3d42-4430-a72a-8db11ee6a1fe" />
+<img width="1318" height="832" alt="image" src="https://github.com/user-attachments/assets/f91047cf-795c-4885-b1ed-458790aed0c3" />
+<img width="361" height="191" alt="image" src="https://github.com/user-attachments/assets/34711901-b0e9-4d6f-acfa-08b49050f5f9" />
+<img width="651" height="553" alt="image" src="https://github.com/user-attachments/assets/cb44e5dc-00f4-497d-b72b-cb6eaa71bf46" />
+
+
+
 # Credits to https://github.com/ZyxxTheDev/Exit?tab=readme-ov-file check him out!
 ### also Asher wanted credits too <3
 # Exit-Exposal
